@@ -5,7 +5,7 @@
 - 📫 How to reach me tgc - https://t.me/itgamesjava
 - tg- @ShaDoWBoY4
 - discord - https://discord.gg/eD5E7zJxqf
-- yt - https://youtube.com/@motivatorIT?si=sUto9CU8s2OSCLkl
+- youtube - https://youtube.com/@motivatorIT?si=sUto9CU8s2OSCLkl
 - 😄 Pronouns: he\он
 - ⚡ Fun fact: I'm straight And I stutter
 
